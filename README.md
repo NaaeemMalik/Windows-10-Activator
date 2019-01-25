@@ -1,4 +1,4 @@
-# Windows 10 Activator
+# Windows 10 build 1609 Activator
 The Windows 10 with build 1609 and afterward cant be activated by KMS activator.
 You can use this to activate all Windows 10. other windows e.g 7,8 are likely unsupported.
 
